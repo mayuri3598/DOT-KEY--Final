@@ -1,0 +1,2 @@
+# DOT-KEY--Final
+Dot &amp; Key is a new-age skincare brand with products such as serums, face masks, toners and cleansers. The brand has recently expanded into nutraceuticals under the brand 'IKWI', whose products are dermatologically tested and cruelty free.IPO-bound Omni-channel beauty and consumer-care products retailer Nykaa has acquired homegrown skincare brand Dot &amp; Key. This is the first D2C (direct to consumer) beauty brand acquired by Nykaa, which is looking to open its IPO issue on October 28.
